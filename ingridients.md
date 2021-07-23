@@ -1,0 +1,11 @@
+All purpose flour [220g]
+Cocoa Powder [75g]
+Sugar [350g]
+Baking Powder [1 teaspoon]
+Salt [1/4 teaspoon]
+Eggs [2]
+BUtter Milk [240ml]
+Vegetable Oil [120ml]
+Water [240ml]
+Vanilla Extract [1 teaspoon]
+Butter
